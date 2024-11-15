@@ -1,2 +1,0 @@
-# Nasgoru-Project2
-yayayayayayayayayaayyayayyaayayayyayyayay
